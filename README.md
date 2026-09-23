@@ -147,3 +147,17 @@ I help professionals optimize their resumes and LinkedIn profiles for targeted j
 ### 🔗 Connect With Me
 
 [LinkedIn](https://www.linkedin.com/in/lokeshdas01/)
+
+
+
+## 📂 Keyword Matching Sample
+
+👉 **[View JD-to-Resume Keyword Matching Sample](./JD-Resume-Keyword-Matching-Sample.pdf)**
+
+---
+
+## 📩 Work With Me
+
+I help professionals optimize their resumes and LinkedIn profiles for targeted job opportunities.
+
+👉 **[Get Started — Submit Your Information](https://tally.so/r/2EpAbL)**
